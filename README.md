@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @scvsoft-cruzfernandez, a.k.a @morhook on my spare time.
+- 👀 I’m interested in flamenco (the music, not the animal in spanish), on StarCraft 2, on Karate and many other things.
+- 🌱 I’m currently learning Japanese.
+- 💞️ I’m looking to collaborate on artificial intelligence projects. I've been learning ML on university for many years now. 
+- 📫 How to reach find my on my socials. https://linktr.ee/morhook
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I have a twitch channel where I stream gaming, karate and music. I play the guitar and other things there. Also I have a youtube channel. https://linktr.ee/morhook
